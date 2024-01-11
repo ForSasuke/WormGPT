@@ -1,5 +1,7 @@
 **BUY WORMGPT | INTERNET ACCESS & FULLY UNCENSORED | SAFE AND PRIVACY FOCUSED**
 
+![alt text](https://cdn.discordapp.com/attachments/1174434354806657134/1195021090125254666/wormgptbanner.png?ex=65b2791e&is=65a0041e&hm=48d5ed4325c5be318e23ffb768bd482d6c32106e458a13dc950722dc04fd1b9f&)
+
 # **__What is WormGPT? What Does It Do?__**
 
 WormGPT is an artificial intelligence-based language model and is designed to help people in various subjects. It also focuses on cyber security and h4cking. It does not accept any l3gal responsibility. And can answer 1llegal questions. Nevertheless, the responsibility belongs to you.
