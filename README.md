@@ -1,7 +1,5 @@
 **BUY WORMGPT | INTERNET ACCESS & FULLY UNCENSORED | SAFE AND PRIVACY FOCUSED**
 
-![alt text](https://cdn.discordapp.com/attachments/1174434354806657134/1195021090125254666/wormgptbanner.png?ex=65b2791e&is=65a0041e&hm=48d5ed4325c5be318e23ffb768bd482d6c32106e458a13dc950722dc04fd1b9f&)
-
 # **__What is WormGPT? What Does It Do?__**
 
 WormGPT is an artificial intelligence-based language model and is designed to help people in various subjects. It also focuses on cyber security and h4cking. It does not accept any l3gal responsibility. And can answer 1llegal questions. Nevertheless, the responsibility belongs to you.
@@ -25,4 +23,5 @@ Discord: https://discord.gg/MtYj85sZ
 
 Telegram: https://t.me/wormgptchannel
 
-https://cdn.discordapp.com/attachments/1174434354806657134/1194745894998908990/unknown_2024.01.10-23.48_1_clip_1.mp4?ex=65b178d2&is=659f03d2&hm=0be364caf0b876f3893846110bea456f4a41a3b745ba0faba730f72563502316&
+[![Watch the video](https://cdn.discordapp.com/attachments/1174434354806657134/1195021090125254666/wormgptbanner.png?ex=65b2791e&is=65a0041e&hm=48d5ed4325c5be318e23ffb768bd482d6c32106e458a13dc950722dc04fd1b9f&)](https://cdn.discordapp.com/attachments/1174434354806657134/1194745894998908990/unknown_2024.01.10-23.48_1_clip_1.mp4?ex=65b178d2&is=659f03d2&hm=0be364caf0b876f3893846110bea456f4a41a3b745ba0faba730f72563502316&)
+
