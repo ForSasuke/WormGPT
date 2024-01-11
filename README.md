@@ -1,5 +1,6 @@
-# **BUY WORMGPT | INTERNET ACCESS & FULLY UNCENSORED | SAFE AND PRIVACY FOCUSED**
-
+```diff
+! # **BUY WORMGPT | INTERNET ACCESS & FULLY UNCENSORED | SAFE AND PRIVACY FOCUSED**
+```
 # **__What is WormGPT? What Does It Do?__**
 
 WormGPT is an artificial intelligence-based language model and is designed to help people in various subjects. It also focuses on cyber security and hacking. It does not accept any legal responsibility. And can answer illegal questions. Nevertheless, the responsibility belongs to you.
