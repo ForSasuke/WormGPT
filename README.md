@@ -1,4 +1,4 @@
-! # **BUY WORMGPT | INTERNET ACCESS & FULLY UNCENSORED | SAFE AND PRIVACY FOCUSED**
+<code style="color : aqua"># **BUY WORMGPT | INTERNET ACCESS & FULLY UNCENSORED | SAFE AND PRIVACY FOCUSED**</code>
 
 # **__What is WormGPT? What Does It Do?__**
 
