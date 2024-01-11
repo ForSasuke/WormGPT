@@ -21,7 +21,8 @@ Reliable and Secure: WormGPT is a reliable and secure artificial intelligence mo
 
 For Buy WormGPT
 ----------------------------
-https://discord.gg/MtYj85sZ
-https://t.me/wormgptchannel
+Discord: https://discord.gg/MtYj85sZ
+
+Telegram: https://t.me/wormgptchannel
 
 https://cdn.discordapp.com/attachments/1174434354806657134/1194745894998908990/unknown_2024.01.10-23.48_1_clip_1.mp4?ex=65b178d2&is=659f03d2&hm=0be364caf0b876f3893846110bea456f4a41a3b745ba0faba730f72563502316&
