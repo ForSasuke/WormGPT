@@ -23,5 +23,5 @@ Discord: https://discord.gg/MtYj85sZ
 
 Telegram: https://t.me/wormgptchannel
 
-[![alt text](https://cdn.discordapp.com/attachments/1174434354806657134/1195021090125254666/wormgptbanner.png?ex=65b2791e&is=65a0041e&hm=48d5ed4325c5be318e23ffb768bd482d6c32106e458a13dc950722dc04fd1b9f&)
+![alt text](https://cdn.discordapp.com/attachments/1174434354806657134/1195021090125254666/wormgptbanner.png?ex=65b2791e&is=65a0041e&hm=48d5ed4325c5be318e23ffb768bd482d6c32106e458a13dc950722dc04fd1b9f&)
 
