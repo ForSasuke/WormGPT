@@ -21,7 +21,7 @@ You can use WormGPT from this link in a semi-censored way.
 
 # **__For Buy WormGPT__**
 ----------------------------
-**Discord**: __https://discord.gg/MtYj85sZ__
+**Discord**: __https://discord.gg/wormgpt__
 
 **Telegram**: __https://t.me/wormgptchannel__
 
