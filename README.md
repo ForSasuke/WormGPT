@@ -57,5 +57,3 @@ We have multiple vouches in our Telegram and Discord communities. Join us to lea
 - **Website**: [Buy WormGPT](https://wormgpt.net.tr/pricing)
 - **Telegram**: [Forsasuke1337](https://t.me/forsasuke)
 - **Telegram Channel**: [WormGPT Official](https://t.me/wormgptchannel)
-
-![alt text](https://cdn.discordapp.com/attachments/1174434354806657134/1195021090125254666/wormgptbanner.png?ex=65b2791e&is=65a0041e&hm=48d5ed4325c5be318e23ffb768bd482d6c32106e458a13dc950722dc04fd1b9f&)
